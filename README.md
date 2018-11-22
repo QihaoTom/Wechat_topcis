@@ -5,4 +5,8 @@
 
 ## The History of Newark
 
-## 
+## New York Memories
+* Open House | 
+* Central Park
+* Chinatown (FLushing/Manhatten/Sunset Park)
+* 
