@@ -9,81 +9,85 @@ THE VICE PRESIDENT: Thank you, Ken, for that kind introduction. To the Members o
 
 For more than a half a century, this Institute has dedicated itself to “advancing global security, prosperity, and freedom.” And while Hudson’s hometowns have changed over the years, one thing has been constant: You have always advanced that vital truth, that American leadership lights the way.
 
+> 在一个多世纪以来，这个机构致力于“提升全球安全、繁荣和自由”。虽然很多改变了，但不变的是，你们一直以来秉持真理，以领导力来照亮美国。
+
 And today, speaking of leadership, allow me to begin by bringing greetings from a great champion of American leadership at home and abroad –- I bring greetings from the 45th President of the United States of America, President Donald Trump. (Applause.)
 
-From early in this administration, President Trump has made our relationship with China and President Xi a priority. On April 6th of last year, President Trump welcomed President Xi to Mar-a-Lago. On November 8th of last year, President Trump traveled to Beijing, where China’s leader welcomed him warmly.
+From early in this administration, President Trump has made our relationship with China and President Xi a priority. On April 6th of last year, President Trump welcomed President Xi to **Mar-a-Lago**. On November 8th of last year, President Trump traveled to Beijing, where China’s leader welcomed him warmly.
 
 Over the course of the past two years, our President has forged a strong personal relationship with the President of the People’s Republic of China, and they’ve worked closely on issues of common interest, most importantly the denuclearization of the Korean Peninsula.
 
-But I come before you today because the American people deserve to know that, as we speak, Beijing is employing a whole-of-government approach, using political, economic, and military tools, as well as propaganda, to advance its influence and benefit its interests in the United States.
+But I come before you today because the American people deserve to know that, as we speak, Beijing is *employing a whole-of-government approach*, using political, economic, and military tools, as well as *propaganda*, to *advance its influence and benefit its interests* in the United States.
 
-China is also applying this power in more proactive ways than ever before, to exert influence and interfere in the domestic policy and politics of this country.
+China is also applying this power *in more proactive ways* than ever before, to *exert influence* and interfere in the domestic policy and politics of this country.
 
-Under President Trump’s leadership, the United States has taken decisive action to respond to China with American action, applying the principles and the policies long advocated in these halls.
+Under President Trump’s leadership, the United States has taken *decisive action* to respond to China with American action, applying the principles and the policies long advocated in these halls.
 
-In our National Security Strategy that the President Trump released last December, he described a new era of “great power competition.” Foreign nations have begun to, as we wrote, “reassert their influence regionally and globally,” and they are “contesting [America’s] geopolitical advantages and trying [in essence] to change the international order in their favor.”
+In our National Security Strategy that the President Trump released last December, he described a new era of **“great power competition.”** Foreign nations have begun to, as we wrote, “reassert their influence regionally and globally,” and they are “contesting [America’s] geopolitical advantages and trying [in essence] to change the *international order* in their favor.”
 
 In this strategy, President Trump made clear that the United States of America has adopted a new approach to China. We seek a relationship grounded in fairness, reciprocity, and respect for sovereignty, and we have taken strong and swift action to achieve that goal.
 
 As the President said last year on his visit to China, in his words, “we have an opportunity to strengthen the relationship between our two countries and improve the lives of our citizens.” Our vision of the future is built on the best parts of our past, when America and China reached out to one another in a spirit of openness and friendship.
 
-When our young nation went searching in the wake of the Revolutionary War for new markets for our exports, the Chinese people welcomed American traders laden with ginseng and fur.
+When our young nation went searching in the wake of the Revolutionary War for new markets for our exports, the Chinese people **welcomed American traders laden with ginseng and fur**.
 
-When China suffered through indignities and exploitations during her so-called “Century of Humiliation,” America refused to join in, and advocated the “Open Door” policy, so that we could have freer trade with China, and preserve their sovereignty.
+When China **suffered through indignities and exploitations during her so-called “Century of Humiliation**,” America refused to join in, and advocated the “Open Door” policy, so that we could have freer trade with China, and preserve their sovereignty.
 
 When American missionaries brought the good news to China’s shores, they were moved by the rich culture of an ancient and vibrant people. And not only did they spread their faith, but those same missionaries founded some of China’s first and finest universities.
 
-When the Second World War arose, we stood together as allies in the fight against imperialism. And in that war’s aftermath, America ensured that China became a charter member of the United Nations, and a great shaper of the post-war world.
+When the Second World War arose, we *stood together as allies in the fight against imperialism*. And in that war’s aftermath, America ensured that China became **a charter member** of the United Nations, and **a great shaper** of the post-war world.
 
-But soon after it took power in 1949, the Chinese Communist Party began to pursue authoritarian expansionism. It is remarkable to think that only five years after our nations had fought together, we fought each other in the mountains and valleys of the Korean Peninsula. My own father saw combat on that frontier of freedom.
+But soon after it took power in 1949, the Chinese Communist Party began to **pursue authoritarian expansionism**. It is remarkable to think that only five years after our nations had fought together, we fought each other in the mountains and valleys of the Korean Peninsula. My own father saw combat on that frontier of freedom.
 
-But not even the brutal Korean War could diminish our mutual desire to restore the ties that for so long had bound our peoples together. China’s estrangement from the United States ended in 1972, and, soon after, we re-established diplomatic relations and began to open our economies to one another, and American universities began training a new generation of Chinese engineers, business leaders, scholars, and officials.
+But not even the brutal Korean War could diminish our mutual desire to restore the ties that for so long had bound our peoples together. **China’s estrangement** from the United States ended in 1972, and, soon after, we re-established diplomatic relations and began to open our economies to one another, and American universities began training a new generation of Chinese engineers, business leaders, scholars, and officials.
 
-After the fall of the Soviet Union, we assumed that a free China was inevitable. Heady with optimism at the turn of the 21st Century, America agreed to give Beijing open access to our economy, and we brought China into the World Trade Organization.
+After the fall of the Soviet Union, we assumed that a free China was inevitable. **Heady with optimism** at the turn of the 21st Century, America agreed to give Beijing open access to our economy, and we brought China into the World Trade Organization.
 
-Previous administrations made this choice in the hope that freedom in China would expand in all of its forms -– not just economically, but politically, with a newfound respect for classical liberal principles, private property, personal liberty, religious freedom — the entire family of human rights. But that hope has gone unfulfilled.
+Previous administrations made this choice **in the hope that freedom in China would expand** in all of its forms -– not just economically, but politically, with a newfound respect for **classical liberal principles**, private property, personal liberty, religious freedom — the entire family of human rights. **But that hope has gone unfulfilled**.
 
-The dream of freedom remains distant for the Chinese people. And while Beijing still pays lip service to “reform and opening,” Deng Xiaoping’s famous policy now rings hollow.
+The dream of freedom remains distant for the Chinese people. And while Beijing still **pays lip service** to “reform and opening,” **Deng Xiaoping’s famous policy now rings hollow**.
 
-Over the past 17 years, China’s GDP has grown nine-fold; it’s become the second-largest economy in the world. Much of this success was driven by American investment in China. And the Chinese Communist Party has also used an arsenal of policies inconsistent with free and fair trade, including tariffs, quotas, currency manipulation, forced technology transfer, intellectual property theft, and industrial subsidies that are handed out like candy to foreign investment. These policies have built Beijing’s manufacturing base, at the expense of its competitors -– especially the United States of America.
+Over the past 17 years, China’s GDP has grown nine-fold; it’s become the second-largest economy in the world. Much of this success was driven by American investment in China. And the Chinese Communist Party has also **used an arsenal of policies inconsistent with free and fair trade, including tariffs, quotas, currency manipulation, forced technology transfer, intellectual property theft, and industrial subsidies that are handed out like candy to foreign investment**. These policies have built Beijing’s manufacturing base, at the expense of its competitors -– especially the United States of America.
 
-China’s actions have contributed to a trade deficit with the United States that last year ran to $375 billion –- nearly half of our global trade deficit. As President Trump said just this week, in his words, “We rebuilt China” over the last 25 years.
+China’s actions have contributed to a trade deficit with the United States that last year ran to **$375 billion** –- nearly half of our global trade deficit. As President Trump said just this week, in his words, **“We rebuilt China”** over the last 25 years.
 
-Now, through the “Made in China 2025” plan, the Communist Party has set its sights on controlling 90 percent of the world’s most advanced industries, including robotics, biotechnology, and artificial intelligence. To win the commanding heights of the 21st century economy, Beijing has directed its bureaucrats and businesses to obtain American intellectual property –- the foundation of our economic leadership -– by any means necessary.
+Now, through the “Made in China 2025” plan, the Communist Party has set its sights on controlling 90 percent of the world’s most advanced industries, including **robotics, biotechnology, and artificial intelligence**. To win the commanding heights of the 21st century economy, Beijing has directed its bureaucrats and businesses to obtain American intellectual property –- the foundation of our economic leadership -– by any means necessary.
 
-Beijing now requires many American businesses to hand over their trade secrets as the cost of doing business in China. It also coordinates and sponsors the acquisition of American firms to gain ownership of their creations. Worst of all, Chinese security agencies have masterminded the wholesale theft of American technology –- including cutting-edge military blueprints. And using that stolen technology, the Chinese Communist Party is turning plowshares into swords on a massive scale.
+Beijing now requires many American businesses to hand over their trade secrets as the cost of doing business in China. It also coordinates and sponsors the **acquisition of American firms** to gain ownership of their creations. Worst of all, Chinese security agencies have **masterminded the wholesale theft of American technology** –- including cutting-edge military blueprints. And using that stolen technology, the Chinese Communist Party is **turning plowshares into swords on a massive scale**.
 
-China now spends as much on its military as the rest of Asia combined, and Beijing has prioritized capabilities to erode America’s military advantages on land, at sea, in the air, and in space. China wants nothing less than to push the United States of America from the Western Pacific and attempt to prevent us from coming to the aid of our allies. But they will fail.
+China now spends as much on its military as the rest of Asia combined, and Beijing has prioritized capabilities to **erode America’s military advantages on land, at sea, in the air, and in space**. China wants nothing less than to push the United States of America from the Western Pacific and attempt to prevent us from coming to the aid of our allies. But they will fail.
 
-Beijing is also using its power like never before. Chinese ships routinely patrol around the Senkaku Islands, which are administered by Japan. And while China’s leader stood in the Rose Garden at the White House in 2015 and said that his country had, and I quote, “no intention to militarize” the South China Sea, today, Beijing has deployed advanced anti-ship and anti-air missiles atop an archipelago of military bases constructed on artificial islands.
+Beijing is also using its power like never before. Chinese ships routinely patrol around the Senkaku Islands, which are administered by Japan. And while China’s leader stood in the Rose Garden at the White House in 2015 and said that his country had, and I quote, “no intention to militarize” the South China Sea, today, Beijing has **deployed advanced anti-ship and anti-air missiles atop an archipelago of military bases constructed on artificial islands**.
 
 China’s aggression was on display this week, when a Chinese naval vessel came within 45 yards of the USS Decatur as it conducted freedom-of-navigation operations in the South China Sea, forcing our ship to quickly maneuver to avoid collision. Despite such reckless harassment, the United States Navy will continue to fly, sail, and operate wherever international law allows and our national interests demand. We will not be intimidated and we will not stand down. (Applause.)
 
-America had hoped that economic liberalization would bring China into a greater partnership with us and with the world. Instead, China has chosen economic aggression, which has in turn emboldened its growing military.
+America had hoped that economic liberalization would bring China into a greater partnership with us and with the world. Instead, China has chosen **economic aggression, which has in turn emboldened its growing military**.
 
-Nor, as we had hoped, has Beijing moved toward greater freedom for its own people. For a time, Beijing inched toward greater liberty and respect for human rights. But in recent years, China has taken a sharp U-turn toward control and oppression of its own people.
+Nor, as we had hoped, has Beijing moved toward greater freedom for its own people. For a time, Beijing inched toward greater liberty and respect for human rights. But in recent years, China has taken **a sharp U-turn toward control and oppression of its own people**.
 
-Today, China has built an unparalleled surveillance state, and it’s growing more expansive and intrusive – often with the help of U.S. technology. What they call the “Great Firewall of China” likewise grows higher, drastically restricting the free flow of information to the Chinese people.
+Today, China has built **an unparalleled surveillance state**, and it’s growing more expansive and intrusive – often with the help of U.S. technology. What they call the “Great Firewall of China” likewise **grows higher, drastically restricting the free flow of information to the Chinese people**.
 
-And by 2020, China’s rulers aim to implement an Orwellian system premised on controlling virtually every facet of human life — the so-called “Social Credit Score.” In the words of that program’s official blueprint, it will “allow the trustworthy to roam everywhere under heaven, while making it hard for the discredited to take a single step.”
+And by 2020, China’s rulers aim to implement **an Orwellian system premised on controlling virtually every facet of human life — the so-called “Social Credit Score.”** In the words of that program’s official blueprint, it will “allow the trustworthy to roam everywhere under heaven, while making it hard for the discredited to take a single step.”
 
-And when it comes to religious freedom, a new wave of persecution is crashing down on Chinese Christians, Buddhists, and Muslims.
+### Religious
+And when it comes to religious freedom, a new wave of **persecution is crashing down* on Chinese Christians, Buddhists, and Muslims.
 
-Last month, Beijing shut down one of China’s largest underground churches. Across the country, authorities are tearing down crosses, burning bibles, and imprisoning believers. And Beijing has now reached a deal with the Vatican that gives the avowedly atheist Communist Party a direct role in appointing Catholic bishops. For China’s Christians, these are desperate times.
+**Last month, Beijing shut down one of China’s largest underground churches. Across the country, authorities are tearing down crosses, burning bibles, and imprisoning believers. And Beijing has now reached a deal with the Vatican that gives the avowedly atheist Communist Party a direct role in appointing Catholic bishops. For China’s Christians, these are desperate times.**
 
 Beijing is also cracking down on Buddhism. Over the past decade, more than 150 Tibetan Buddhist monks have lit themselves on fire to protest China’s repression of their beliefs and their culture. And in Xinjiang, the Communist Party has imprisoned as many as one million Muslim Uyghurs in government camps where they endure around-the-clock brainwashing. Survivors of the camps have described their experiences as a deliberate attempt by Beijing to strangle Uyghur culture and stamp out the Muslim faith.
 
 As history attests though, a country that oppresses its own people rarely stops there. And Beijing also aims to extend its reach across the wider world. As Hudson’s own Dr. Michael Pillsbury has written, “China has opposed the actions and goals of the U.S. government. Indeed, China is building its own relationships with America’s allies and enemies that contradict any peaceful or productive intentions of Beijing.”
 
-In fact, China uses so-called “debt diplomacy” to expand its influence. Today, that country is offering hundreds of billions of dollars in infrastructure loans to governments from Asia to Africa to Europe and even Latin America. Yet the terms of those loans are opaque at best, and the benefits invariably flow overwhelmingly to Beijing.
+### Debt diolomacy
+In fact, China uses so-called “debt diplomacy” to expand its influence. Today, that country is offering hundreds of billions of dollars in infrastructure loans to governments from Asia to Africa to Europe and even Latin America. **Yet the terms of those loans are opaque at best, and the benefits invariably flow overwhelmingly to Beijing.**
 
 Just ask Sri Lanka, which took on massive debt to let Chinese state companies build a port of questionable commercial value. Two years ago, that country could no longer afford its payments, so Beijing pressured Sri Lanka to deliver the new port directly into Chinese hands. It may soon become a forward military base for China’s growing blue-water navy.
 
-Within our own hemisphere, Beijing has extended a lifeline to the corrupt and incompetent Maduro regime in Venezuela that’s been oppressing its own people. They pledged $5 billion in questionable loans to be repaid with oil. China is also that country’s single largest creditor, saddling the Venezuelan people with more than $50 billion in debt, even as their democracy vanishes. Beijing is also impacting some nations’ politics by providing direct support to parties and candidates who promise to accommodate China’s strategic objectives.
+Within our own hemisphere, Beijing has extended a lifeline to the corrupt and incompetent Maduro regime in **Venezuela** that’s been oppressing its own people. They pledged $5 billion in questionable loans to be repaid with oil. China is also that country’s single largest creditor, saddling the Venezuelan people with more than $50 billion in debt, even as their democracy vanishes. Beijing is also impacting some nations’ politics by providing direct support to parties and candidates who promise to accommodate China’s strategic objectives.
 
-And since last year alone, the Chinese Communist Party has convinced three Latin American nations to sever ties with Taipei and recognize Beijing. These actions threaten the stability of the Taiwan Strait, and the United States of America condemns these actions. And while our administration will continue to respect our One China Policy, as reflected in the three joint communiqués and the Taiwan Relations Act, America will always believe that Taiwan’s embrace of democracy shows a better path for all the Chinese people. (Applause.)
+And since last year alone, the Chinese Communist Party has convinced three Latin American nations to sever ties with Taipei and recognize Beijing. These actions threaten the stability of the Taiwan Strait, and the United States of America condemns these actions. And while our administration will continue to respect our One China Policy, as reflected in the three joint communiqués and the Taiwan Relations Act, **America will always believe that Taiwan’s embrace of democracy shows a better path for all the Chinese people.** (Applause.)
 
-Now these are only a few of the ways that China has sought to advance its strategic interests across the world, with growing intensity and sophistication. Yet previous administrations all but ignored China’s actions. And in many cases, they abetted them. But those days are over.
+Now these are only a few of the ways that China has sought to advance its strategic interests across the world, with growing intensity and sophistication. Yet previous administrations all but ignored China’s actions. And in many cases, they **abetted them**. But those days are over.
 
 Under President Trump’s leadership, the United States of America has been defending our interests with renewed American strength.
 
@@ -99,7 +103,7 @@ As President Trump has made clear, we don’t want China’s markets to suffer. 
 
 Sadly, China’s rulers, thus far, have refused to take that path. The American people deserve to know: In response to the strong stand that President Trump has taken, Beijing is pursuing a comprehensive and coordinated campaign to undermine support for the President, our agenda, and our nation’s most cherished ideals.
 
-I want to tell you today what we know about China’s actions here at home — some of which we’ve gleaned from intelligence assessments, some of which are publicly available. But all of which are fact.
+I want to tell you today what we know about China’s actions here at home — some of which we’ve **gleaned from intelligence assessments**, some of which are publicly available. But all of which are fact.
 
 As I said before, as we speak, Beijing is employing a whole-of-government approach to advance its influence and benefit its interests. It’s employing this power in more proactive and coercive ways to interfere in the domestic policies of this country and to interfere in the politics of the United States.
 
