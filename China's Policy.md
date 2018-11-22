@@ -5,6 +5,8 @@ Washington, D.C.
 
 THE VICE PRESIDENT: Thank you, Ken, for that kind introduction. To the Members of the Board of Trustees, to Dr. Michael Pillsbury, to our distinguished guests, and to all of you who, true to your mission in this place, “think about the future in unconventional ways” –- it is an honor to be back at the Hudson Institute.
 
+> “以一种非传统的、非按照惯例的方式，想想未来”
+
 For more than a half a century, this Institute has dedicated itself to “advancing global security, prosperity, and freedom.” And while Hudson’s hometowns have changed over the years, one thing has been constant: You have always advanced that vital truth, that American leadership lights the way.
 
 And today, speaking of leadership, allow me to begin by bringing greetings from a great champion of American leadership at home and abroad –- I bring greetings from the 45th President of the United States of America, President Donald Trump. (Applause.)
