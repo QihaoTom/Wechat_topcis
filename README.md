@@ -27,4 +27,4 @@ With sound judgement, common sense, and **unflappable leadership**, President Bu
 
 Along with his full life of service to country, we will remember President Bush for his devotion to family—especially the love of his life, Barbara.  **His example lives on**, and will continue to **stir future Americans to pursue a greater cause**.  **Our hearts ache with his loss**, and we, with the American people, send our prayers to the entire Bush family, as we honor the life and legacy of 41.
 
-## One Belt One road | NHK documentary [《巨龙中国》】](https://mp.weixin.qq.com/s?__biz=MzU2NTY2ODY2NA==&mid=2247483972&idx=1&sn=921f3f724d9b228bab41030c154dfd6e)
+## One Belt One road | NHK documentary [《巨龙中国》](https://mp.weixin.qq.com/s?__biz=MzU2NTY2ODY2NA==&mid=2247483972&idx=1&sn=921f3f724d9b228bab41030c154dfd6e)
