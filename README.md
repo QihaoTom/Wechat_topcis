@@ -6,6 +6,9 @@
 
 ## The History of Newark
 * use the 100 figure data from HAH
+* fairly blossming place
+* race riots
+* 
 
 ## New York Memories
 * Open House | 
