@@ -9,6 +9,7 @@
 * fairly blossming place
 * race riots
 * [Assessing The $100 Million Upheaval Of Newark's Public Schools](https://www.npr.org/2015/09/21/442183080/assessing-the-100-million-upheaval-of-newarks-public-schools)
+In 2010, Mayor Cory Booker, New Jersey Gov. Chris Christie and Facebook founder Mark Zuckerberg devised a plan to improve Newark's failing schools. Dale Russakoff recounts their efforts in The Prize.
 
 ## New York Memories
 * Open House | 
