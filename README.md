@@ -8,7 +8,7 @@
 * use the 100 figure data from HAH
 * fairly blossming place
 * race riots
-* 
+* [Assessing The $100 Million Upheaval Of Newark's Public Schools](https://www.npr.org/2015/09/21/442183080/assessing-the-100-million-upheaval-of-newarks-public-schools)
 
 ## New York Memories
 * Open House | 
