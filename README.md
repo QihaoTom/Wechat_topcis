@@ -35,8 +35,7 @@ Along with his full life of service to country, we will remember President Bush 
 * [Economic Security as National Security: A Discussion with Dr. Peter Navarro](https://www.youtube.com/watch?v=g3rxjaOPQD4)
 The intersection of the economy and national security is at the forefront of policymakers' minds with the public release of the industrial base review last month that found an alarming number of vulnerabilities throughout critical sections of the industrial base’s supply chain. Join CSIS for a discussion with Dr. Peter Navarro, Assistant to the President and Director of the White House Office of Trade and Manufacturing Policy to learn more about the administration’s view of how economic policy supports national security.
 
-## Peter Hessler: capturing essence of Chinese society
-**New Yorker**
+* Peter Hessler: capturing essence of Chinese society **New Yorker**
 
 ## 贺建奎基因编辑婴儿
 
