@@ -14,6 +14,7 @@ In 2010, Mayor Cory Booker, New Jersey Gov. Chris Christie and Facebook founder 
 ## New York Memories
 * Open House | 
 * Central Park
+[New York City’s public-private partnerships](http://blogs.reuters.com/muniland/2012/05/24/new-york-citys-public-private-partnerships/)
 * Chinatown (FLushing/Manhatten/Sunset Park)
 
 ### Dec, 2018
