@@ -60,3 +60,5 @@ The intersection of the economy and national security is at the forefront of pol
 
 * Because you have the right to have a Secretary of Defense whose views are better aligned with yours on these and other subjects, I believe it is right for me to step down from my position. The end date for my tenure is February 28, 2019, a date that should allow sufficient time for a successor to be nominated and confirmed as well as to make sure the Department’s interests are properly articulated and protected at upcoming events to include Congressional posture hearings and the NATO Defense Ministerial meeting in February. Further, that a full transition to a new Secretary of Defense occurs well in advance of the transition of Chairman of the Joint Chiefs of Staff in September in order to ensure stability within the Department.
 
+## Food Ranger 
+* bask舒适 ／ crate 箱子 ／ 
